@@ -1,4 +1,5 @@
-![adda08ec91adec1382bc51b0361e8d61](https://github.com/user-attachments/assets/c7582575-939a-40f8-9bfa-6057acb4bafe)
+
+![65023d8b0435343f138216da59d5c441](https://github.com/user-attachments/assets/634914b2-f73a-49d7-851c-cf783ade0f73)
 
 
  
@@ -9,7 +10,7 @@
 
 - You can call me Deaf/Kohi or any nickname you want to.
 - I love C+H so plz C+H cuz I won't bite. 😖
-- Fandoms that I'm in: BSD, Black Butler, CRK, YanSim, TWST, SaikiK, TBHK, HLB, etc.
+- Fandoms that I'm in: BSD, Black Butler, CRK, YanSim, TWST, SaikiK, TBHK, HLB, DanDaDan etc.
 
   
 
@@ -34,7 +35,7 @@
 ***▓▒▒░░░*☆⁠+*ﾟ｡THAT'S ALL:D⁠｡*ﾟ⁠+☆*░░░▒▒▓***
 
 
-![978369c4de80cd6efc411b845c634c6d](https://github.com/user-attachments/assets/adc67ce8-54ad-45a6-aa02-867410803551)
+![5705f68d96b52777a7d3bab4539e0573](https://github.com/user-attachments/assets/9f810e38-7786-4d91-8fbe-e761b57f710e)
 
 <!---
 ilovemyoctpsm/ilovemyoctpsm is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
