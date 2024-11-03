@@ -13,14 +13,18 @@
 
   
 
-***꒰⁠⑅⁠⁠ಠ⁠_⁠ಠ꒱˖⁠× DNI if u are:***
+***꒰⁠⑅⁠⁠ಠ⁠_⁠ಠ꒱˖⁠× DNI:***
 
-- Racism, homophobic, bodyshamer.
+- Racism.
+- Pedo.
+- Homophobes.
+- Bodyshamer.
 - CanonxOc hater.
 - Proshipper.
 
 
 ***꒰⁠⑅⁠人⁠´⁠∀⁠｀⁠꒱⁠˖⁠♡ Some notes:***
+
 - I don't like ships so plz consider before talk/int with me.
 - I'm multiple tasks most all the time, so plz w2i when I don't respond immediately.
 
