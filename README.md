@@ -16,8 +16,8 @@
 
 ***꒰⁠⑅⁠⁠ಠ⁠_⁠ಠ꒱˖⁠× DNI:***
 
-- Racism.
-- Pedo.
+- ~Racism.~
+- ~Pedo.~
 - Homophobes.
 - Bodyshamer.
 - CanonxOc hater.
