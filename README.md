@@ -9,7 +9,7 @@
 ***꒰⁠⑅⁠ᵕ⁠༚⁠ᵕ⁠꒱⁠˖⁠♡ About me:***
 
 - You can call me Deaf/Kohi or any nickname you want to.
-- I love C+H so plz C+H cuz I won't bite. 😖
+- I love C+H so plz C+H cuz I won't bite. 😔
 - Fandoms that I'm in: BSD, Black Butler, CRK, YanSim, TWST, SaikiK, TBHK, HLB, DanDaDan etc.
 
   
